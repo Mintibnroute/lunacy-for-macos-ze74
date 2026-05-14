@@ -1,4 +1,4 @@
-# 
+# Get the ultimate Lunacy for macOS plugin with best Plugin for Lunacy for macOS - batch processing and gradient maps. Featuring batch processing and gradient maps, it's the best
 
 
 
